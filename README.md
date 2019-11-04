@@ -8,7 +8,6 @@ No body *born* with knowledge so you must accepted theres many thing in the worl
 
 1. How you can judge on something and saied its hard before finished
 2. you will never feel taste of successes if it was easy 
-3. Remember we get out from thing more diffcult
 
 
 **keep say to your self you can do it this will give you positive energy**
